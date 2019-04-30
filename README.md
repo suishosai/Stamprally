@@ -1,0 +1,2 @@
+# Stamprally
+Stamprally, you enjoy!
